@@ -1,7 +1,7 @@
 # robluxhack
 Roblux Hack Robux
 
-[![](https://i.imgur.com/zeezw4y.png)](https://roblux.mobspin.com)
+[![](https://i.imgur.com/zeezw4y.png)](http://bit.ly/2DxfU1m)
 
 >## How to earn Robux- the in-game currency:
 
@@ -70,4 +70,4 @@ using our hack.
 
 So choose our hack generator and enjoy your game better!
 
-[![](https://i.imgur.com/zeezw4y.png)](https://roblux.mobspin.com)
+[![](https://i.imgur.com/zeezw4y.png)](http://bit.ly/2DxfU1m)
